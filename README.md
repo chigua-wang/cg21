@@ -2,9 +2,9 @@
 911爆料网-911爆料网吃瓜-网曝门事件-秘密研究所传送门发布页-秘密入口
 
 ----
-[🔞🌏点击进入官网【cg588.com】🌏🔞](https://chigua-wang.github.io/cg51/)
+[🔞🌏点击进入官网【cg588.com】🌏🔞](https://chigua-wang.github.io/cg21/)
 ----
-[🔞🌏点击进入官网【cg589.com】🌏🔞](https://chigua-wang.github.io/cg51/)
+[🔞🌏点击进入官网【cg589.com】🌏🔞](https://chigua-wang.github.io/cg21/)
 ----
 <h3>【瓜棚团】更新时间：2024年12月3日</h3>
 
